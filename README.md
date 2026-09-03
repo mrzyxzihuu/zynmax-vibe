@@ -1,1 +1,0 @@
-# zynmax-vibe
